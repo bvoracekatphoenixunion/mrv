@@ -2,7 +2,7 @@
 
 # hi this is gabriel
 
-# HEY ITS jOEL
+# j o   e    l
 
 # dani 
 
