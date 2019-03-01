@@ -1,8 +1,11 @@
 # mrv
 
-
 # hi this is gabriel
 
 # HEY ITS jOEL
 
-#jess
+# Jess
+
+# dani 
+
+# jose
